@@ -1,6 +1,6 @@
 # X33fCon 2024
 
-You can view the talk (TBD).
+You can view the talk [here](https://www.youtube.com/watch?v=edI6tpBO-pY).
 
 ## Description
 
